@@ -1,0 +1,1 @@
+# The-effectiveness-of-ChatGPT-in-multilingual-food-safety-regulations-translation-
